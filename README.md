@@ -1,2 +1,6 @@
 # hello-world
-first timer aka noob
+noob
+
+Howdy Y'all!
+
+Hooman here, new to this, enjoying the edumacashun.
